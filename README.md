@@ -1,1 +1,1 @@
-# nosotros-gtc
+# nosotros
